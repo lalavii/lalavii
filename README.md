@@ -1,4 +1,4 @@
-## Bem vindos ao meu perfil 🍒
+## Bem vindos ao meu perfil 🐾
 
 Meu nome é Lavinia 
 
@@ -8,4 +8,8 @@ Meu nome é Lavinia
 
 ### Você pode entrar em contato comigo 📫
 
-00002095305062sp@al.educacao.sp.gov.br
+- 00002095305062sp@al.educacao.sp.gov.br
+
+- @l4v.santos 💋
+
+![](https://media1.tenor.com/m/hwGiaH9YK9UAAAAC/kitty-kitten.gif)
